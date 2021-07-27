@@ -1,0 +1,1 @@
+# nesrin-34-sari_kamis_odevi
